@@ -1,6 +1,10 @@
 # Castle Download APK v1.9.4 Latest Version For Android 2024
 Castle APK is the Android package file for the popular game Castle. It allows users to install and play the game on their devices without needing access to official app stores. The APK version often comes with added benefits, such as unlocked features, free in-game resources, and compatibility with a wider range of devices.
 
+**Download Free: [Castle APK](https://bit.ly/40tCotw)**
+
+**Join Gamemodfree Community To update the latest games every day: [Here](https://t.me/gamemodfreecom)**
+
 The game itself is a mix of strategy, resource management, and action-packed battles. Players are tasked with building a stronghold, managing resources, training armies, and defending their castle from enemy invasions. With its stunning graphics and dynamic gameplay, Castle has captured the attention of millions of gamers worldwide.
 
 ## Why Download Castle APK?
